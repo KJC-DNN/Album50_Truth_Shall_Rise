@@ -11,7 +11,7 @@
 Through powerful lyrics and global musical influences, this album declares freedom, truth, and redemption in Christ.
 
 **Total Tracks:** 7  
-**Languages:** Multilingual (English, Russian, German, and others)  
+**Languages:** Multilingual 
 **Genre:** Epic Devotional Worship / Global Christian  
 **Release Date:** July 2026
 
