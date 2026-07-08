@@ -25,7 +25,7 @@ Through powerful lyrics and global musical influences, this album declares freed
 4. **Holy Soverign Lord**  
 5. **Christ shall raise**  
 6. **Shatter the Matrix**  
-7. **Truth Shall Rise**
+7. **Right Direction**
 
 ---
 
