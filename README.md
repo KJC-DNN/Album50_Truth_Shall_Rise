@@ -1,4 +1,4 @@
-# Album 50 - Truth Shall Rise
+# Album 50 - Truth Shall Rise (Victory Over Terror, Mystic Chains & Occult Strongholds)
 
 **A Multilingual Devotional Worship Album**
 
